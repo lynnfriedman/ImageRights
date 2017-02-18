@@ -1,0 +1,2 @@
+# ImageRights
+copyright infringement
